@@ -24,4 +24,6 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Yashwardhan-kv&icon=10&color=0)](https://visitcount.itsvg.in)
 
+[![](https://visitcount.itsvg.in/api?id=Yashwardhan-kv&label=Profile%20Views&pretty=false)](https://visitcount.itsvg.in)
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
