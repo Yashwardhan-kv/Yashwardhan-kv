@@ -1,7 +1,9 @@
 # 💫 About Me:
-👨‍💻 Prompt Engineer | 🌟 Passionate about creating seamless user experiences<br><br>🚀 Turning ideas into elegant code<br><br>🎨 President of cultural Club | 🎨 Graphic designer at Network BIT forum<br><br>🔧 Member of ISTE student Chapter | 🏆 Grand finalist of SIH'22 @ first year<br><br>💡 Founder of Dyunetra | 🌐 CCIO@NSD | 🔍 Digital Forensic Investigator<br><br>🌱 Always learning, exploring new tech stacks, and sharpening my skills<br><br>💬 Let's collaborate and innovate together!<br><br>📫 Reach out: https://linktr.ee/yashwardhankatkamwar.7
+👨‍💻 Prompt Engineer | 🌟 Passionate about creating seamless user experiences<br><br>🚀 Turning ideas into elegant code<br><br>🎨 President of cultural Club | 🎨 Graphic designer at Network BIT forum<br><br>🔧 Member of ISTE student Chapter | 🏆 Grand finalist of SIH'22 @ first year<br><br>🌐 CCIO@NSD | 🔍 Digital Forensic Investigator<br><br>🌱 Always learning, exploring new tech stacks, and sharpening my skills<br><br>💬 Let's collaborate and innovate together!<br><br>📫 Reach out: https://linktr.ee/yashwardhankatkamwar.7
 
 
+<br>💡 Founder of Dyu-Netra<br>
+<br>💡 Co-Founder of GuruVar (www.guruvar.co.in) <br>
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/_skysentiment_) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/yashwardhan-devalyst) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/Its_Anoynomus_) 
 
